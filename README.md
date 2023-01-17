@@ -1,6 +1,6 @@
 Yationk自制软件
 
-即将上线应用:Yationk:组件应用
+即将上线应用:
 
 目前持续更新应用:Yationk工具箱 I
 
