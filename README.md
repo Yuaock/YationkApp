@@ -2,7 +2,7 @@ Yationk自制软件
 
 即将上线应用:
 
-目前持续更新应用:Yationk工具箱 I
+目前持续更新应用:Yationk工具箱 I | Yationk冲马桶雪洗1.0
 
 目前完结应用:
 
